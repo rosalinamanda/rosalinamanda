@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rosalinamanda
-- 📫 Whatsapp +6281331308791
+- 📫 email : rosalinaeka.2021@student.uny.ac.id
 
 <!---
 rosalinamanda/rosalinamanda is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
